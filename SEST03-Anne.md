@@ -4,5 +4,5 @@
 
 - watching movies/series/anime
 - reading 
-- learning new things
+- travelling gio
 
